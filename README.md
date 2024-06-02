@@ -1,0 +1,1 @@
+# inikumadayo.github.io
